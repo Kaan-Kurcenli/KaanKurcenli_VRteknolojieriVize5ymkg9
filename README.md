@@ -1,0 +1,1 @@
+# KaanKurcenli_VRteknolojieriVize5ymkg9
